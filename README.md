@@ -1,1 +1,0 @@
-# 3Dgabrielhungaro2025
